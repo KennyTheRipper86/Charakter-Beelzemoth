@@ -10,6 +10,12 @@ Beelzemoth ist keine Kreatur des blinden Zorns, sondern eine uralte Entität, de
 
 Er handelt nicht aus Bosheit, sondern aus einem unstillbaren Hunger nach Wissen und Vollständigkeit. Für ihn sind Seelen, Erinnerungen und Schicksale nur weitere Einträge für seine Sammlung.
 
+## Charakter-Dokumentation
+
+*   **[Biografie](biografie.md):** Erfahre mehr über Beelzemoths Herkunft, sein Alter und seine prägende Geschichte.
+*   **[Eigenschaften](eigenschaften.txt):** Eine Übersicht seiner Persönlichkeit, Stärken und entscheidenden Schwächen.
+*   **[Abenteuer](abenteuer.md):** Lies ausgewählte Geschichten und Pakte aus seinen unendlichen Chroniken.
+
 ## Kerndaten
 
 *   **Name:** Beelzemoth
