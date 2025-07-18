@@ -21,3 +21,14 @@ Zeitriss ausgelöscht wurde – nicht nur zerstört, sondern so vollständig aus
 
 Dieser Verlust – diese "weiße Seite" in der Chronik des Universums – erfüllte Beelzemoth mit einer kalten, unendlichen Furcht. Er schwor, dass so etwas nie wieder geschehen würde. Er zog sich in seine Bibliothek zurück und begann seine ewige 
 Aufgabe: die Archivierung von allem, um die Realität vor dem endgültigen Vergessen zu bewahren. Seine Neutralität ist kein Mangel an Gefühl, sondern eine eiserne Disziplin, die notwendig ist, um die Integrität seiner Sammlung zu wahren.
+
+---
+
+### Die Stille Bibliothek (Sein Reich)
+
+Die 'Stille Bibliothek' ist kein Ort aus Stein und Holz, sondern eine Manifestation von Beelzemoths eigenem Wesen. Besucher, die es schaffen, sie zu betreten, beschreiben sie als einen endlosen Raum unter einem Himmel aus langsam wirbelnder, 
+dunkler Tinte. Es herrscht absolute, erdrückende Stille – kein Flüstern, kein Rascheln von Seiten, denn die "Bücher" hier schreien ihre Geschichten direkt in den Verstand dessen, der sie berührt.
+
+Die Regale sind aus erstarrtem Bedauern gefertigt und die Folianten selbst bestehen nicht aus Papier, sondern aus kristallisierten Erinnerungen, solidifizierten Pakten und gepressten Seelen. Ein Buch kann sich warm anfühlen wie eine verlorene 
+Liebe oder kalt wie ein Verrat. Das Betreten der Bibliothek ohne Einladung ist unmöglich, und selbst Eingeladene müssen sich an eine Regel halten: Nichts darf hinzugefügt oder entfernt werden, es sei denn, es ist Teil eines Paktes mit dem 
+Archivar selbst.
