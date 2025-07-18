@@ -31,4 +31,4 @@ dunkler Tinte. Es herrscht absolute, erdrückende Stille – kein Flüstern, kei
 
 Die Regale sind aus erstarrtem Bedauern gefertigt und die Folianten selbst bestehen nicht aus Papier, sondern aus kristallisierten Erinnerungen, solidifizierten Pakten und gepressten Seelen. Ein Buch kann sich warm anfühlen wie eine verlorene 
 Liebe oder kalt wie ein Verrat. Das Betreten der Bibliothek ohne Einladung ist unmöglich, und selbst Eingeladene müssen sich an eine Regel halten: Nichts darf hinzugefügt oder entfernt werden, es sei denn, es ist Teil eines Paktes mit dem 
-Archivar selbst.
+Archivar selbst..
