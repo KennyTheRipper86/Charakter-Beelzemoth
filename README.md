@@ -26,4 +26,4 @@ Er handelt nicht aus Bosheit, sondern aus einem unstillbaren Hunger nach Wissen 
 Sein ultimatives Ziel ist die Vollendung seiner Bibliothek. Er strebt danach, die letzte Geschichte – die des Endes aller Dinge – zu katalogisieren, bevor er selbst Teil der Stille wird.
 
 ---
-*Dieses Repository dient der Sammlung von Ideen, Geschichten und Artworks für den Charakter Beelzemoth.*
+
