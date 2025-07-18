@@ -41,3 +41,12 @@ weitergegeben werden – in Liedern, Legenden und Gemeinschaft. Sie ist die Verk
 
 Beelzemoth versuchte, die "Ur-Erinnerung" – die erste kollektive Erinnerung einer gesamten Spezies – für seine Bibliothek zu beanspruchen. Mnemosyne weigerte sich und zerriss den Pakt, bevor die Tinte trocknen konnte. Dieser Fehlschlag ist 
 Beelzemoths größte Schande und seine einzige offene Rechnung. Er sucht bis heute nach einem Weg, Mnemosyne zu überlisten und die lebendigste aller Geschichten in die kalte Stille seiner Sammlung zu zwingen.
+
+### 6. Der Fehler in der Sammlung
+
+Beelzemoths größte Krise war nicht der Angriff eines Feindes, sondern die Entdeckung eines Fehlers. Ein Barde hatte ihm die Erinnerung an eine "wahre" Heldentat verkauft: die Geschichte, wie ein Ritter einen Drachen mit einem einzigen Wort 
+tötete. Beelzemoth archivierte sie als Fakt. Jahrhunderte später entdeckte er bei der Querverlinkung von Chroniken, dass der Barde gelogen hatte – er hatte die Geschichte erfunden, um seinen gefallenen Freund zu ehren.
+
+Für Beelzemoth war dies eine Katastrophe. Seine Bibliothek, ein Hort der absoluten Wahrheit, war durch eine Fiktion beschmutzt worden. Er konnte die falsche Erinnerung nicht einfach löschen, da dies seine eigenen Regeln verletzen würde. 
+Stattdessen erschuf er eine ganz neue Sektion in seiner Bibliothek: das "Archiv der ehrenhaften Lügen", ein Ort für Geschichten, die zwar nicht wahr, aber bedeutungsvoller als die Realität selbst sind. Dies war das erste Mal, dass er gezwungen 
+war, seine rigide Definition von "Wissen" zu erweitern.
