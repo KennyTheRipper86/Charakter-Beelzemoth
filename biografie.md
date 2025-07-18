@@ -31,4 +31,13 @@ dunkler Tinte. Es herrscht absolute, erdrückende Stille – kein Flüstern, kei
 
 Die Regale sind aus erstarrtem Bedauern gefertigt und die Folianten selbst bestehen nicht aus Papier, sondern aus kristallisierten Erinnerungen, solidifizierten Pakten und gepressten Seelen. Ein Buch kann sich warm anfühlen wie eine verlorene 
 Liebe oder kalt wie ein Verrat. Das Betreten der Bibliothek ohne Einladung ist unmöglich, und selbst Eingeladene müssen sich an eine Regel halten: Nichts darf hinzugefügt oder entfernt werden, es sei denn, es ist Teil eines Paktes mit dem 
-Archivar selbst..
+Archivar selbst.
+
+### Das erste große Archiv: Die Archivierung des Namenlosen Gottes
+
+Eine der ersten und bedeutendsten Taten von Beelzemoth war die Archivierung des "Namenlosen Gottes", einer Entität aus purer Schöpfungskraft, die so mächtig war, dass ihre bloße Existenz die Realität unkontrolliert neu schrieb. Königreiche 
+entstanden und zerfielen im Wimpernschlag eines Gottesauges. Um die Stabilität der Existenz zu wahren, überzeugte Beelzemoth die Entität in einem logischen Diskurs davon, dass ihre Geschichte nur dann wirklich unsterblich sein könne, wenn sie 
+in einem perfekten, unveränderlichen Zustand bewahrt würde.
+
+Der Gott willigte ein. Beelzemoth entzog ihm nicht sein Leben, sondern seine Fähigkeit, auf die Realität einzuwirken, und bannte sein gesamtes Wesen, seine Macht und seine Geschichte in einen einzigen, pulsierenden Folianten aus lebendigem 
+Licht. Dieses Buch ist nun das Herzstück seiner Bibliothek und eine Quelle unermesslichen Wissens über die Gesetze der Schöpfung selbst.
