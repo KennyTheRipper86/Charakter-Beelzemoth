@@ -29,7 +29,7 @@ Er handelt nicht aus Bosheit, sondern aus einem unstillbaren Hunger nach Wissen 
 
 ## Ziel
 
-Sein ultimatives Ziel ist die Vollendung seiner Bibliothek. Er strebt danach, die letzte Geschichte – die des Endes aller Dinge – zu katalogisieren, bevor er selbst Teil der Stille wird.
+> Sein ultimatives Ziel ist die Vollendung seiner Bibliothek. Er strebt danach, die letzte Geschichte – die des Endes aller Dinge – zu katalogisieren, bevor er selbst Teil der Stille wird.
 
 ---
 
